@@ -1,2 +1,2 @@
-# Hapoosh #FF0000
+# Hapoosh
 Hapooshtili Manjool
